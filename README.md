@@ -1,0 +1,2 @@
+# janalyktar
+ict sesiia tapsyrmasy
